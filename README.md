@@ -2,7 +2,9 @@
 
 Segue abaixo apresentações minhas gravadas e artigos de divulgação.
 
-**Canal no youtube:** Seminário covida 20 (sou um dos organizadores): https://www.youtube.com/channel/UCPGlAyWJqK37uXlRJ4nlP4g
+**Canal no youtube:** Seminário covida 20 (sou um dos organizadores): 
+
+https://www.youtube.com/channel/UCPGlAyWJqK37uXlRJ4nlP4g
 
 **Apresentações:**
 
