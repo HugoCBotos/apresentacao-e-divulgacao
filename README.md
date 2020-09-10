@@ -16,6 +16,7 @@ Poliedros de Platâo e Ladrilhamento: https://www.youtube.com/watch?v=PfBgpT3MzM
 
 **Artigos de divulgação:**
 
-Quaternions: animais parecidos com os números complexos: http://www.cemeai.icmc.usp.br/actalegalicus/quaternions-animais-parecidos-com-os-numeros-complexos/
-
 Uma prova celestial do Teorema Fundamental da Álgebra: http://www.cemeai.icmc.usp.br/actalegalicus/uma-prova-celestial-do-teorema-fundamental-da-algebra/
+
+
+Quaternions: animais parecidos com os números complexos: http://www.cemeai.icmc.usp.br/actalegalicus/quaternions-animais-parecidos-com-os-numeros-complexos/
