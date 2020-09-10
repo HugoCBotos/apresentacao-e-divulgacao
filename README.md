@@ -8,11 +8,11 @@ https://www.youtube.com/channel/UCPGlAyWJqK37uXlRJ4nlP4g
 
 **Apresentações:**
 
-Introdução a difeologia parte 1: https://www.youtube.com/watch?v=ZgoPWoQaxm8
+Introdução à difeologia parte 1: https://www.youtube.com/watch?v=ZgoPWoQaxm8
 
-Introdução a difeologia parte 2: https://www.youtube.com/watch?v=fvQ6Wm_cYug
+Introdução à difeologia parte 2: https://www.youtube.com/watch?v=fvQ6Wm_cYug
 
-Introdução a difeologia parte 3: https://www.youtube.com/watch?v=MfzYQ_g5Gw8
+Introdução à difeologia parte 3: https://www.youtube.com/watch?v=MfzYQ_g5Gw8
 
 Poliedros de Platâo e Ladrilhamento: https://www.youtube.com/watch?v=PfBgpT3MzMM
 
